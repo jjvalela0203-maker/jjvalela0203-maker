@@ -26,5 +26,5 @@ Me apasiona transformar datos sin procesar en información comercial accionable,
 #### 🌐 Conectemos
 
 - 💼 **LinkedIn:** [Juan José Varela Zorrilla](https://www.linkedin.com/in/juan-jose-varela-zorrilla-142b34361)
-- 📧 **Email:** jjvalela0203@gmail.com[cite: 1]
-- 🌍 **Idiomas:** Español (Nativo) • Inglés (B2) • Italiano (A1)[cite: 2]
+- 📧 **Email:** jjvalela0203@gmail.com
+- 🌍 **Idiomas:** Español (Nativo) • Inglés (B2) • Italiano (A1)
